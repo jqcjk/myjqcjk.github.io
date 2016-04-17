@@ -1,3 +1,3 @@
 # myjqcjk.github.io
 
-http://jqcjk.com/
+哈哈哈
